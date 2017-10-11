@@ -60,4 +60,4 @@ Week 9: Biology
  - Selen  
  - Tori  
  - Breon  
- - Derrick  
+ - Daniel  
