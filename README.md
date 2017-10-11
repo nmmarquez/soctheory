@@ -46,17 +46,18 @@ Week 6: Marxism
 Week 7: Feminst Theory  
  - Hannah   
  - Audrey  
- - kerry  
- - breon  
+ - Kerry  
+ - Breon  
 
 Week 8: Theory of Race  
  - Tori  
  - Hannah  
  - Ian  
- - audery  
+ - Audery  
 
 Week 9: Biology  
  - Mark  
  - Selen  
  - Tori  
  - Breon  
+ - Derrick  
