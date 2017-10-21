@@ -8,12 +8,12 @@
 ## Institutions and the Economy  
  - Markets are rarely efficient and transactions are costly  
  - Players learn correct methods by trial which is costly   
- - Institutions are not independent of the economic market
+ - Institutions are not independent of the economic market  
    - This is unlike what economists act in analysis  
 
 ## Institutions and Organizations  
  - Interactions between institutions and organization shape the economy  
- - Recall organizations are bounded by some common interest  \
+ - Recall organizations are bounded by some common interest  
  - Organizations that surface do so by support of the Institutional Framework  
  - Change comes about by alteration in strategies by individuals of organizations  
  - Recall though that the greater the monopoly the less incentive to learn  
