@@ -31,7 +31,6 @@ Week 4: Cultural Theory
  - Neal  
 
 Week 5: Network Theory  
- - Kerry  
  - Neal  
  - Mark  
  - Sarah  
