@@ -36,3 +36,42 @@
  - Expansion of urban space has picked up conspicous wealth in areas like Dubai  
  - Hosuing costs in urban areas becoming unsustainable  
  - Author argues that a global financial crisis is likely looming  
+
+## Property and Pacification  
+ - Quality and city itself in urban space has been commodified  
+ - Pacification by cappucino  
+ - This state makes defense of property, in terms of economic worth, tantamount  
+   - Setup is inherently conflict prone  
+ - Cities are facilitating seperation by way of  
+   - Private public spaces  
+   - Gated communities  
+
+## Dispossessions  
+ - Most city transormations require destruction of space  
+   - This space is most often populated by the poor  
+ - This phenomenon is reoccuring  
+ - See accumulation by dispossesion  
+ - Any place that does not have an official deed is up for grabs  
+ - Any displaced individual is often not within rights to demand compensation  
+ - Author gives examples of scenarios in India and China  
+ - Offering ownership to individuals often has them resettling anyway at low prices  
+ - Author hedges bets on favelas transorming into scenic urban dwellings  
+   - As the original inhabitants get displaced  
+
+## Formulating demands  
+ - At some point populations push back and demand justice  
+ - Examples of social movements presented by author  
+ - Simple solution is greater democratic control over the surplus  
+ - OECD data shows that the states portion of gross output has been constant  
+   - Since the 1970s  
+ - Increasing the states share only has beneficial effect if is democratically owned  
+ - Those with agency are ablet to reshape the urban fabric to their needs  
+   - New Haven and Yale  
+   - Bloomberg in NYC  
+ - Financial crises rarely affect the affluent in terms of possesion or income  
+ - Urban movements are pushing against this and asking for bail out funds to be reappropriated  
+    - Who needs to be bailed out here?  
+    - These movements lack the size in order to get demands met  
+    - They also dont have a way of seizing the surplus  
+ - Unifying struggles needs to hinge on the right to the city  
+
