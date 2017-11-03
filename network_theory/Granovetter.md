@@ -18,6 +18,8 @@
    - atomisim is a prerequisite  
    - dont know about that dawg  
 
+Read up on teh great transormation  
+
 ## Embeddedness, Trust, and Malfeasance  
  - Why do actors in a market not simply use force  
  - What are the circumstances when this does happen?  
